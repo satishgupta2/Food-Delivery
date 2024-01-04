@@ -15,7 +15,7 @@
 ![12](https://github.com/satishgupta2/Food-Delivery/assets/126942680/2f46fb99-f7cb-4da8-b4e8-4bbbcd5154ea)
 
 ![13](https://github.com/satishgupta2/Food-Delivery/assets/126942680/1384b67c-be84-4601-996d-df1b118e7ca1)
-![14](https://github.com/satishgupta2/Food-Del![16](https://github.com/satishgupta2/Food-Delivery/assets/126942680/961e773b-5730-405c-a963-db7c35ffc645)
-ivery/assets/126942680/0f465bea-eabe-410f-9cd6-5aae9a04c3b4)
+![14](https://github.com/satishgupta2/Food-Delivery/assets/126942680/0f451693-eba2-4e9d-8ae1-19e5bcb30f62)
+
 ![15](https://github.com/satishgupta2/Food-Delivery/assets/126942680/e82394b4-af95-4ba2-842e-f71806f940d4)
 ![16](https://github.com/satishgupta2/Food-Delivery/assets/126942680/6d2c4585-aa22-4874-9e09-4b33a22ae9d4)
